@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Everthing
 - 🤍 Empty Seats Empty Heart
 - 📫 How to reach me : sakthivelbaranitharan03@gmail.com
-- ⚡ It That Is Mine Then It Will Come
+- ⚡ If That Is Mine Then It Will Come
 
 <!---
 Sakthi-tbm/Sakthi-tbm is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
